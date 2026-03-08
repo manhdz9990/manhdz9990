@@ -16,4 +16,5 @@
 - 
 
 ## Connect With Me
-X: https://x.com/yourlink
+X:https://x.com/lon_rong14459
+DISCORRD : https://discord.com/channels/@manh100kk
